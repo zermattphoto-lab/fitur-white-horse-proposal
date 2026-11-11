@@ -1,1 +1,0 @@
-# fitur-white-horse-proposal
